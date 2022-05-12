@@ -1,0 +1,1 @@
+# lab6_spovm_Podenok_2022
